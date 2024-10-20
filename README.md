@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Starting a business 
 - 📫 How to reach me ...nkwaine4@gmail.com
 - 😄 Pronouns: Imanol
-- ⚡ Fun fact: Tomorrow stats today 
+- ⚡ Fun fact: Tomorrow starts today 
 
 <!---
 Maitre3/Maitre3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
